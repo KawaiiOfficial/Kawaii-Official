@@ -1,4 +1,4 @@
-# 🌸✨ KAWAII - Enter the Realm of Infinite Cuteness ✨🌸
+# 🌸 KAWAII - Enter the Realm of Infinite Cuteness ✨
 
 <div align="center">
 
